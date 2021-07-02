@@ -1,4 +1,3 @@
-# Sustentabilidade
 
 <img src="https://s1.static.brasilescola.uol.com.br/be/conteudo/images/sustentabilidade.jpg" alt="sustentabilidade"/>
 
